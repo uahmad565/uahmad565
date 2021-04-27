@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @uahmad565
+- 👀 I’m interested in doing any kinds of projects.
+- 🌱 I’m currently doing Computer Science at FAST(NATIONAL UNIVERSITY OF EMERGING SCIENCES).
+- 📫 You can reach me by email uahmad565565@gmail.com.
